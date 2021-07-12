@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @intothetv
+- 👀 I’m interested in Teaching Technical Skills
+- 🌱 I’m currently learning Cloud Computing
+- 📫 How to reach me : Instagram DM @intothetv.yt
+- Youtube Chennel Link: [Into The TV](https://www.youtube.com/c/IntoTheTV)
